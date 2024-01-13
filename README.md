@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on: Nothing quite yet
 - 📫 How to reach me: My discord handle is @not8.
 - 😄 Pronouns: N/A 🗿
-- ⚡ Fun fact: I love puooies
+- ⚡ Fun fact: I love puppies
+- Have a nice day!
 
 <!---
 PurpleX5/PurpleX5 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
